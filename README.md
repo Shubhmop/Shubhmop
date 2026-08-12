@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am shubh, <br>and I am a Fullstakc website developer and I am a freelance I belong from ayodhay. And I am a footballer.
+I am shubh, <br>and I am a Fullstakc website developer and I am a freelance I belong from ayodhay. And I love to play football.
 
 
 ## 🌐 Socials:
